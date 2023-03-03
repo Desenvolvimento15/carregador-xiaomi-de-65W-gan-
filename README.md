@@ -1,0 +1,1 @@
+# carregador-xiaomi-de-65W-gan-
